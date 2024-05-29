@@ -10,4 +10,5 @@ alurastartestudante@email.com
 
 @alurastartestudante
 
-![](https://tenor.com/pt-PT/view/caze-gif-20787929)
+![](https://media1.tenor.com/m/tw1pHRRqA9cAAAAd/caze.gif) 
+
