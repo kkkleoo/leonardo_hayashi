@@ -10,4 +10,4 @@ alurastartestudante@email.com
 
 @alurastartestudante
 
-
+![](https://tenor.com/pt-PT/view/caze-gif-20787929)
